@@ -1,6 +1,6 @@
 ## Names Axder / Seth / Light ; Hi welcome 
 
-![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/7c45a96894501e1393f40aa615ce87c6.jpg)
+![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/7c45a96894501e1393f40aa615ce87c6%20(1).jpg)
 
  
 dni facts:
