@@ -27,4 +27,31 @@ some of my information ;
 - i would adopt some kids on online if you guys accept my information . 
 - you can add me on tiktok . 
 
-- ## have a good time thx for reading this .  
+- ## have a good time thx for reading this .
+
+## my fav ship btw *look down 👇!!!
+
+![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/7c45a96894501e1393f40aa615ce87c6.jpg)
+
+
+
+## betrayed king for life btw
+
+![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/db154eff7d767e1820129ab27e574e9f.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
