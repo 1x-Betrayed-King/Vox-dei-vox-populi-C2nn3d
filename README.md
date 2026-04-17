@@ -1,7 +1,7 @@
 ## Names Axder / Seth / Light ; Hi 🦈  
 
 
-![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/946762e63c49521b02e533f0a27b685dc64b4ab8/3aa783d86f6c6eb61f4718e232dcd0ea%20(1).jpg)
+![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/db154eff7d767e1820129ab27e574e9f.jpg)
 
  
 dni facts:
@@ -27,31 +27,6 @@ some of my information ;
 - i would adopt some kids on online if you guys accept my information . 
 - you can add me on tiktok . 
 
-- ## have a good time thx for reading this .
+- ### have a good time thx for reading this .
 
-## my fav ship btw *look down 👇!!!
-
-![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/7c45a96894501e1393f40aa615ce87c6.jpg)
-
-
-
-## betrayed king for life btw
-
-![image alt](https://github.com/1x-Betrayed-King/1x-Betrayed-King/blob/db154eff7d767e1820129ab27e574e9f.jpg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+## betrayed king for life
