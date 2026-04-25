@@ -1,5 +1,5 @@
 ## Names Axder / Seth / Light ; Hi welcome to My `Read.me`
-I luv my oomf Fujii @flopj67 !! ^_^
+I luv my oomfs !! ^_^
  
 here some dni facts:
 
@@ -24,6 +24,6 @@ some of my information ;
 - i would adopt some kids on online if you guys accept my information . 
 - you can add me on tiktok . @vax3_.1ss <-on tt 
 
-- ### have a good time thx for reading this .
+- ## have a good time thx for reading this .
 
-## betrayed king for life
+- ## betrayedking for life
